@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vnjery1
-- I’m interested in fixing stuff and translate into Vietnamese
+- I’m interested in fixing stuff thats I like and translate into Vietnamese
 - (0vo) SeCrEt
 - Everyone can contact me
 - maingyenpj@gmail.com if you want to contact me
