@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @vnjery1
-- I’m interested in fixing stuff thats I like and translate into Vietnamese
-- (0vo) SeCrEt
+- 👋 Hi, I’m @vnjery1.
+- I'm interested in making some unciv mod better
 - Everyone can contact me
 - maingyenpj@gmail.com if you want to contact me
 
